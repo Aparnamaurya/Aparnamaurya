@@ -1,4 +1,4 @@
-# Hello, I'm Aparna Maurya
+
 
 ### 💼 Where you can find me
 
